@@ -1,6 +1,1 @@
-- princess Twilight Sparke
-- Spike
-- Applejack
-- Rainbow Dash
-- Pinkie Pie
-- Rarity
+mauvaise manip 🤷‍♂️🤷‍♂️🤷‍♂️🤷‍♂️🤷‍♂️
